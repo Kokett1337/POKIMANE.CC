@@ -1,2 +1,4 @@
-# POKIMANE.CC
-This Is Unkown Cheats Leaked Spoofer Drivers Are Not Included. #fortnite-spoofer #valorant-spoofer #cheats #hack #epic
+# Pokimane.cc
+Spoofer cracked / source is pasted / Logger
+
+its a logger and a miner so I removed the shit :D
